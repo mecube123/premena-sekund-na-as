@@ -1,0 +1,1 @@
+# premena-sekund-na-as
